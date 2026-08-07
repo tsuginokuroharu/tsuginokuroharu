@@ -56,3 +56,4 @@ I LOVE CANNIBALISM (˶˃ ᵕ ˂˶)
 <div></div>
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/e8c1e500-9610-4435-aa11-ebc91b59a83b" />
 
+<img width="99" height="55" alt="image" src="https://github.com/user-attachments/assets/1f472cd4-a6a0-4cfe-a5c5-8e7fa25e79a8" />
