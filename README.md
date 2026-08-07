@@ -30,18 +30,28 @@ I LOVE CANNIBALISM (˶˃ ᵕ ˂˶)
 <img width="200" height="56" alt="tumblr_e0fd836ca25ee19a184dad563b83476c_620c9d7f_250" src="https://github.com/user-attachments/assets/e10b0d5d-e10f-4be7-86dc-a9be0520e42d" />
 
 <div align="center"> <img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/d9d26b56-c5ba-46f8-a7f1-c2a2ba78935e" />
+<div>
+  <img width="500" height="200" alt="image" src="https://github.com/user-attachments/assets/cb5ff896-5de3-4ffa-b46f-fb19cbe4c25f" />
+<div></div>
+<img width="101" height="57" alt="image" src="https://github.com/user-attachments/assets/f4270671-5ffb-4239-a9c2-563c5636b184" /><img width="101" height="57" alt="image" src="https://github.com/user-attachments/assets/6b40c250-b5f4-4aa3-8779-9d5a8f49d4fa" />
+  <img width="101" height="57" alt="image" src="https://github.com/user-attachments/assets/51c5bf86-a65e-46dc-a3d8-7e05bdb07ba6" />
+  <img width="101" height="57" alt="image" src="https://github.com/user-attachments/assets/ccd87a7b-4f06-4262-873f-a89ac974763e" />
+  <img width="101" height="57" alt="image" src="https://github.com/user-attachments/assets/5945a04b-12d1-40ec-9732-6eaaec08b6e4" />
+<div></div>
+<img width="101" height="57" alt="image" src="https://github.com/user-attachments/assets/83aab5ac-f823-4520-9e8a-57f8b44fb5ec" />
+<img width="101" height="57" alt="image" src="https://github.com/user-attachments/assets/5d44f633-45bb-45bb-8040-433f1b597cbb" />
+<img width="101" height="57" alt="image" src="https://github.com/user-attachments/assets/e5423cde-a447-4c40-ace6-ddf0208cb7f3" />
+<img width="101" height="57" alt="image" src="https://github.com/user-attachments/assets/b48d69f3-f477-4296-9797-933b6f9b7616" />
+<img width="101" height="57" alt="image" src="https://github.com/user-attachments/assets/ad24997f-e627-43d0-b0a0-3b2fc15d4c08" />
+<img width="101" height="57" alt="image" src="https://github.com/user-attachments/assets/17df62a8-6fa7-4832-b613-df8ab5edd70a" />
+<div>
+  
+</div>
 
-<!--
-**Casyuce/Casyuce** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<img width="225" height="30" alt="image" src="https://github.com/user-attachments/assets/b507d07e-27a3-4a2e-8431-93ad48154c52" />
+<img width="225" height="30" alt="image" src="https://github.com/user-attachments/assets/8c34ab76-078f-4592-8494-a0b896e99549" />
+<img width="225" height="30" alt="image" src="https://github.com/user-attachments/assets/5d3a894b-d873-4ebd-852f-d957bb7d642f" />
+<img width="225" height="30" alt="image" src="https://github.com/user-attachments/assets/fbcbc6d7-41d6-41a9-905c-ff55eaf290d6" />
+<img width="225" height="30" alt="image" src="https://github.com/user-attachments/assets/815fc0ae-389c-4c84-95fb-123407adb816" />
+<div></div>
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/e8c1e500-9610-4435-aa11-ebc91b59a83b" />
